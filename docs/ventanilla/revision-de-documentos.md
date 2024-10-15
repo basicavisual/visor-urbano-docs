@@ -1,0 +1,1 @@
+aprobar, prevenir desechar
